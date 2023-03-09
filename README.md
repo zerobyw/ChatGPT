@@ -1,6 +1,6 @@
 ### ChatGPT
 **出售ChatGPT独享账号，带$18美金**
-### 地址：http://bwww.vip/git.html
+### 地址：http://bwww.vip/igit.html
 #ChatGPT账号共享
 ChatGPT项目
 ChatGPT账户购买
