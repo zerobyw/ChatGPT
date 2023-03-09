@@ -1,6 +1,6 @@
 ### ChatGPT
 **出售ChatGPT独享账号，带$18美金**
-### 地址：http://ifaka.icu/?code=YT0xJmI9Mw%3D%3D
+### 地址：http://bwww.vip/git.html
 #ChatGPT账号共享
 ChatGPT项目
 ChatGPT账户购买
